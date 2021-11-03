@@ -14,5 +14,9 @@ So currently I am Very Into Editing and Making Montages/AMV on [Youtube](https:/
 
 <div align="center">
   <h1>Cool CLutch</h1>
-  ![Cool CLutch](https://i.imgur.com/rSaeBoo.mp4)
+  
+
+https://user-images.githubusercontent.com/63179591/140020420-066eabf9-8736-4d28-b892-7c7625b4497d.mp4
+
+
 </div>  
